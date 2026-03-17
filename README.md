@@ -4,6 +4,8 @@ Hyperlocal Kitsap musician and Nerd
 
 ## MUSIC
 
+### Alex Bird
+
 I make LoFi Synth Pop Punk using:
 * My beautiful vintage Rhodes 88 Electric Piano (HEART EYES EMOJI)
 * Yamaha PSS-270 Digital Synthesizer
@@ -11,6 +13,20 @@ I make LoFi Synth Pop Punk using:
 * A very weird Alesis HR-16 Drum machine
 
 My debut EP Alex Bird - Sad GXRL is available for sale at Beats and Cats records in Bremerton.
+
+### The Manholes
+
+A very dirty synth punk band! We blend elements from punk, pop, sludge, thrash, world, jazz, and country music.
+
+Our releases include:
+* Swallow you Whole
+* Alexander (Single)
+* Hail Stan!
+* Tales from the North Wood (EP)
+* Submarine (EP)
+* You will die in the climate wars (Single)
+
+All are available on streaming services or on Tape at Beats and Cats records in Bremerton!
 
 ## TAPES (OOTAKICHO)
 
