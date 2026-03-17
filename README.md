@@ -5,6 +5,10 @@ Hyperlocal Kitsap musician and Nerd
 ## MUSIC
 
 I make LoFi Synth Pop Punk using:
+* My beautiful vintage Rhodes 88 Electric Piano (HEART EYES EMOJI)
+* Yamaha PSS-270 Digital Synthesizer
+* Korg Minilogue synthesizer
+* A very weird Alesis HR-16 Drum machine
 
 My debut EP Alex Bird - Sad GXRL is available for sale at Beats and Cats records in Bremerton.
 
