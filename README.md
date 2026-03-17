@@ -37,6 +37,8 @@ I usually do batches of 10 tapes.
 
 I can get started as soon as I have the masters and a high resolution image of the album cover!
 Reach out if you are interested!
+* Email: alex.tremaine.nw@gmail.com
+* Instagram: @alex.bird.nw
 
 ### Catalogue
 My current catalogue includes:
