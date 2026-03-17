@@ -1,4 +1,4 @@
-# ALEX BIRD
+# ALEX BIRD (they/he/she)
 
 Hyperlocal Kitsap musician and Nerd
 
